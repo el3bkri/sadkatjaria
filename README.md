@@ -1,0 +1,2 @@
+# sadkatjaria
+صدقه جاريه
